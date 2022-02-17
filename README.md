@@ -1,0 +1,1 @@
+# Easier-And-Effective-Way-To-Pass-the-Marketing-Cloud-Administrator-Exam-With-Salesforce-Marketing-Cl
